@@ -60,7 +60,7 @@ AI 该解锁的都解锁了；
 
 #### 官网
 
-[官网注册（含邀请码）](https://xn--9kqs1lo79d.com/#/register?code=LC9Cz1TX)
+[官网注册](https://xn--9kqs1lo79d.com/#/register?code=LC9Cz1TX)
 
 > 价格参考：约 ¥2/月；永久流量包888G / ¥19  （目前确实性价比拉满，后续人多就不确定了，可以先买月包）
 
@@ -81,7 +81,7 @@ AI 该解锁的都解锁了；
 
 #### 官网
 
-[官网注册（含邀请码）](https://jmdah7.trumpyun1.com/index.php/#/register?code=CINLPDwi)
+[官网注册](https://jmdah7.trumpyun1.com/index.php/#/register?code=CINLPDwi)
 
 
 > 价格参考：约 ¥16/月；无永久流量包  （半年付加活动¥10/月，愿意加预算的话最推荐这个机场）
@@ -103,7 +103,7 @@ AI解锁；
 
 #### 官网
 
-[官网注册（含邀请码）](https://xnncl.com/#/register?code=3iz0gm1x)
+[官网注册](https://xnncl.com/#/register?code=3iz0gm1x)
 
 > 价格参考：约 ¥12/月；永久流量包¥89/1000G  （活动8折买还是合适的，想用家宽的最推荐这个机场）
 
@@ -126,7 +126,7 @@ AI解锁，但部分日本 / 香港 / 新加坡节点不能用 Gemini；
 
 #### 官网
 
-[官网注册（含邀请码）](https://mojie.app/register?aff=gHEqMbAt)
+[官网注册](https://mojie.app/register?aff=gHEqMbAt)
 
 > 价格参考：永久流量包¥20/130G  （机场运营挺久了，很适合做备用机场）
 
@@ -148,7 +148,7 @@ AI解锁；
 
 #### 官网
 
-[官网注册（含邀请码）](https://goflybit.com/register?code=6r8Gw747xD)
+[官网注册](https://goflybit.com/register?code=6r8Gw747xD)
 
 
 > 价格参考：¥15/月；永久流量包128G / ¥36 （因为有比它更便宜的机场，所以我用了免费流量测试了一下，感兴趣的同学可以试试，节点很多）  
@@ -172,7 +172,7 @@ AI部分节点解锁；
 
 #### 官网
 
-[官网注册（含邀请码）](https://xn--9kqz23b19z.com/#/register?code=WTDhpuM6)
+[官网注册](https://xn--9kqz23b19z.com/#/register?code=WTDhpuM6)
 
 > 价格参考：¥2/月；永久流量包1000G / ¥21 （对AI解锁没要求的，首先推荐这个，太便宜了）  
 ---
@@ -189,7 +189,7 @@ AI部分节点解锁；
 
 #### 官网
 
-[官网注册（含邀请码）](https://xn--mes358aby2apfg.com/register?code=IUYystUb&cover=sfw)
+[官网注册](https://xn--mes358aby2apfg.com/register?code=IUYystUb&cover=sfw)
 
 > 价格参考：¥1.5/月；永久流量包1000G / ¥19（不想花太多钱在梯子上的，可以买来做备用机场，偶尔看看视频）  
 
