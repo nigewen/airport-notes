@@ -182,7 +182,7 @@
 
 #### 官网
 
-[官网注册](https://xnncl.com/#/register?code=3iz0gm1x)
+[官网注册](https://xnyun.wiki/#/register?code=3iz0gm1x)
 
 > 价格参考：约 ¥12/月；  
 > 永久流量包¥89/1000G  （活动8折买还是合适的，想用家宽的最推荐这个机场）
