@@ -19,7 +19,7 @@
 （关于AI，有些地区本来就不支持的，跟机场无关。比如香港节点不支持ChatGPT。AI推荐用新加坡节点，codex/Gemini/Grok都能用，但新加坡节点速度都不算快，用AI没问题，看视频建议香港/日本节点）
 
 觉得有帮助可以点个 Star。
-这是我的X：[lililala_k](https://x.com/lililala_k)，可以关注下，有好东西也会发在上边。
+这是我的X：[mkkkk](https://x.com/nigewen22)，可以关注下，有好东西也会发在上边。
 
 ## 目录
 
@@ -328,7 +328,7 @@
 - **公司网**：个别机场公司网直接连用不了，需要TUN，用虚拟网卡。
 
 觉得有帮助可以点个 Star。
-这是我的X：[lililala_k](https://x.com/lililala_k)，可以关注下，有好东西也会发在上边。
+这是我的X：[mkkkk](https://x.com/nigewen22)，可以关注下，有好东西也会发在上边。
 
 ## 历史表现（状态更新记录）
 
