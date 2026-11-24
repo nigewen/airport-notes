@@ -141,6 +141,7 @@
 #### 官网
 
 [官网注册](https://xn--mes358aby2apfg.com/register?code=IUYystUb&cover=sfw)
+备用链接：[备用注册](https://www.xn--mes358aby2apfg.site/register?code=IUYystUb&cover=sfw)
 
 （不想花太多钱在梯子上的，可以买来做备用机场）
 > 价格参考：¥1.5/月；
@@ -169,6 +170,7 @@
 #### 官网
 
 [官网注册](https://www.fmyun.top/#/register?code=hBsk0gBt)
+备用链接：[备用注册](https://feimiaoyun.xyz/#/register?code=hBsk0gBt)
 
  (过去半个月，所有在用的机场里，优化最稳定的，刷视频流量会不够用，可以先买一个月，后续我找找别的替代)
 > 价格参考：￥9.9/月，永久流量包100G / ¥25;
@@ -194,6 +196,7 @@
 #### 官网
 
 [官网注册](https://jmdah7.trumpyun1.com/index.php/#/register?code=CINLPDwi)
+备用链接：[备用注册](https://main.fqlist.com/#/register?code=CINLPDwi)
 
 
 (二倍节点居多，经常看视频流量肯定是不够的，这个月不太稳定，持续观察吧);
